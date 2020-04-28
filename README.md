@@ -1,0 +1,1 @@
+# TradingAutomatMax
